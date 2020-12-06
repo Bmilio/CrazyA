@@ -1,7 +1,7 @@
 # ★Crazy Arcade★<br/><br/><br/>
 
 ### 게임에 대한 자세한 설명은 다음 링크를 참고해주세요.
-https://youtu.be/Rx4umRsn6U4
+https://www.youtube.com/watch?v=TzzV1eHnjVU
 
 그룹1 송섬균, 장영환
 
